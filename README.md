@@ -18,14 +18,14 @@ ________𝑬𝑯𝑪_𝑪𝒀𝑩𝑬𝑹_𝑯𝑨𝑪𝑲𝑰𝑵𝑮__
 ___🦋(SABBIR)🦋___
 
 <img align="right" alt="Coding" width="400" src="https://raw.githubusercontent.com/devSouvik/devSouvik/master/gif3.gif">
-(__😊SABBIR😎__)
+(__😊MR.BILLU😎__)
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/rePDfDWO3XoAAAAd/hacking.gif">
-(__✏️SABBIR✏️__)
+(__✏️TOXIC✏️__)
 <h1 align="center">Hi 👋, I'm BILLU</h1>
 <h3 align="center">A passionate Software Engineer from 𝘽𝘼𝙉𝙂𝙇𝘼𝘿𝙀𝙎𝙃 BD MR.Billu  </h3>
-___🫡(SABBIR)😋___
+___🫡(FUCKED)😋___
 <img align="right" alt="coding" width="400" src="https://user-images.githubusercontent.com/55389276/140866485-8fb1c876-9a8f-4d6a-98dc-08c4981eaf70.gif">
-___😚(SABBIR)★___
+___😚(SB)★___
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=SABBIR-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="SABBIR-pmishra" /> </p>
 
 - 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://M_R_BANGO](https://t.me/M_R_BANGO)
