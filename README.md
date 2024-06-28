@@ -48,7 +48,6 @@ ___🦋(SABBIR)🦋___
 
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=SABBIR-pmishra&show_icons=true&locale=en" alt="SABBIR-pmishra" /></p>
 
-<p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=S-pmishra&" alt="SA -pmishra" /></p>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
